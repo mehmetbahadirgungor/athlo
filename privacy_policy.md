@@ -94,4 +94,4 @@ We may update this Privacy Policy from time to time. In the event of significant
 
 If you have any questions about this Privacy Policy, our data practices, or your rights, please contact us:
 
-**Email:** mehmetbahadirgungor@gmail.com
+**Email:** contact@athlorai.com
